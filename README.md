@@ -1,6 +1,5 @@
 ### Olá, eu sou a Julia Athayde 👋
 
-#### Desenvolvedora em formação 💻
 
 #### Contatos 📧⬇️
 
